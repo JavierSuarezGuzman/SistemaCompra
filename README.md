@@ -1,0 +1,4 @@
+# Prog102.SOLEMNE2
+LEE EL .pdf
+
+READ THE .pdf
